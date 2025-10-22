@@ -1,0 +1,1 @@
+# ark-pzpi-23-7-vus-andrii
